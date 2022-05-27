@@ -4,7 +4,7 @@ Team members:
 
 Nurkhat Kalmakhan(https://www.linkedin.com/in/nurkhat-kalmakhan-73a077239)   
 
-Nurkanat Raiymkhan
+Nurkanat Raiymkhan(https://www.linkedin.com/in/nurkanat-raiymkhan-500a8423b/)
 
 Baurzhan Anuarbek
 
