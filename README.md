@@ -1,6 +1,6 @@
 OIYN is the website that provides our users with all the latest and top news in the world of football, as well as live translations, the results, statistics of football matches
 Team members:
-Nurkhat Kalmakhan(https://www.linkedin.com/in/nurkhat-kalmakhan-73a077239)
+Nurkhat Kalmakhan(https://www.linkedin.com/in/nurkhat-kalmakhan-73a077239)                                                        
 Nurkanat Raiymkhan
 Baurzhan Anuarbek
 Elaman Armiyauly
